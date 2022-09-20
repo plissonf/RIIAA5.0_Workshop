@@ -8,8 +8,8 @@ Fecha y hora: 30 de septiembre, 11:00 - 13:00 hrs.
 Modalidad: Presencial
 Lugar: Escuela de Gobierno y Transformación Pública, ITESM sede Mixcoac.
 
-Dr. Fabien Plisson https://www.linkedin.com/in/fabienplisson/ 
-Lic. Victor Daniel Aldas Bulos https://www.linkedin.com/in/danielaldas/ 
+- Dr. Fabien Plisson https://www.linkedin.com/in/fabienplisson/ 
+- Lic. Victor Daniel Aldas Bulos https://www.linkedin.com/in/danielaldas/ 
 CINVESTAV Unidad Irapuato, Departamento de Biotecnología y Bioquímica.
 
 Resumen
